@@ -1,11 +1,11 @@
-<h1>瘋情書庫 最新地址（2022-11-3）</h1>
-
+<h1>瘋情書庫 最新地址（2025-02-12）</h1>
+https://aabook.net<br>
+https://fqsk.xyz<br>
+https://fqshuku.cc<br>
 https://aabook.cc<br>
 https://aabook.cyou<br>
+https://aavbook.cc<br>
 https://fqbook.cc<br>
-https://fqbook.cyou<br>
-https://aastory.space<br>
-https://aastory.club<br>
 https://czbook.xyz<br>
 <br>
 同步網站：<br>
